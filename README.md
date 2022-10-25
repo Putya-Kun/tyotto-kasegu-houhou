@@ -1,4 +1,4 @@
-# -KASEGUHOUHOU
+# かせぐほうほう
 
 やり方
 1：https://lolz.guru/market
